@@ -13,3 +13,7 @@ sleepztrade1@gmail.com
 or
 
 https://www.linkedin.com/in/jack-zheng-562072236/
+
+or 
+
+Zelects on discord 
